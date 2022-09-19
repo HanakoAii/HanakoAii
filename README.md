@@ -1,2 +1,0 @@
-# mi-chica-uwu
-hola
